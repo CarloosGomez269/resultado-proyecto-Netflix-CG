@@ -1,4 +1,6 @@
 # resultado-proyecto-Netflix-CG
 Pagina de Netflix
 
-holi uwu
+holi papuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+
+04 morrocoy
